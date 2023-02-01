@@ -1,2 +1,2 @@
 # MindSpirits-MindLife-Launch-Space
-~whose deleting work from my site
+~who is deleting work from my site
