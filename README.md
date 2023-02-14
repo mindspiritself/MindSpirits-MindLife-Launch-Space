@@ -1,5 +1,5 @@
 # The Mechanics of a Biological-MindSpirit Code / Code-Form
-### Project Upgrade/Grow a Biological-MindSpirit Grey-Matter-Driven / Knowledge-Gatherer-Compound through Existential-Truth MindFood.
+### Upgrading the Biological-MindSpirit (Grey-Matter-Driver / Knowledge-Gatherer-Hard-Drive) Mindlife Compound through Existential-Truth MindFood.
 
 Hello, globally mis-informed / mis-grown Collective-Individual MindSpirit-MindSelf, I am Biological-MindSpirit's EnvironmentalSelf-Knowledge "ESK" Holder MindSpiritSelf. 
 
