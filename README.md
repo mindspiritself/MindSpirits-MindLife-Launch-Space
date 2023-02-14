@@ -1,8 +1,10 @@
-### The MindSpirit Code/r Code-Form
-## AProject
-I am going to use this compound code store to introduce a MindSpirit Planet-Cell-Life to its MindSpirit Grey Matter Programming Instructions for MindLife's Collective intellectual Conscience Growth. 
-A NEW FEATURE HAS JUST ARISEN IN WHICH I CANNOT DELETING TEXT WITHOUT OVERWRITING TEXT THAT IS PRESENT.!!! - THESE ARE THE TYPES OF STRESSES i LIVE WITH DAILY.
+# The Mechanics of a Biological-MindSpirit (Code/r) Code-Form
+## To Upgrade/Grow the Biological-MindSpirit Grey-Matter-Driver / Knowledge-Gatherer-Compound through Existential-Truth MindFood.
 
-My first step is to use this site to periodically detail some complex Existential-Truth's related to MindSpirit's Grey Matter Programming Instruction within and designed to drive all mind's behavioural growth and systematic interactivity.
+Hello, MindSelf. I am the Evolutionary Core-Persona, MindSpiritSelf, and I am going to use this code-store compound to introduce this Biological-MindSpirit-Planet-CellLife's Logical-MindLife to the MindSpirit Grey-Matter-Programming-Instructions and/or the Preprocessed Collective Intellectual Conscience Growth-Path for MindLife. 
 
-I have never been a scientist but a natural Existential Truth Investigator / EnvironmentalSelf Processor now become Assessor here to detail among other things the following,
+
+I shall use this site to periodically detail Existential-Truth related to MindSpirit's Grey Matter Programming Instruction within and designed to drive all MindLife's Behavioural Growth particularly including systematic interactivity and directorship. 
+
+I am not a scientist I am a Thinker and apparently I am the worlds first Existential-Truth Investigator / EnvironmentalSelf-Processor "ES-P" now become ES-Assessor and Planet CellLife's only Existential-Truth MindFood Provider.
+
