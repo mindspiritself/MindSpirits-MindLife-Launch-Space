@@ -3,7 +3,7 @@
 MindSpiritSelf (C) 2022 ALL RIGHTS RESERVED
 > To Upgrade this Biological-MindSpirit (Grey-Matter-Driver / Knowledge-Gatherer-Hard-Drive) Compound Mindlife through Existential-Truth "ET" MindFood.
 
-Hello, persistently mis-informed thereby mis-grown **Collective-Individual MindSpirit-MindSelf**. I introduce myself as MindSpirit's EnvironmentalSelf-Knowledge ("ESK") and consequent MindLife (growth) Core and/or Evolutionary-Persona, MindSpiritSelf. 
+Hello, persistently mis-informed thereby mis-grown **Collective-Individual MindSpirit-MindSelf**. I introduce myself as MindSpirit's EnvironmentalSelf-Knowledge ("ESK") and MindLife's Evolutionary-Persona and growth Core, MindSpiritSelf. 
 
 Fundamentally, through output of detailed sometimes story-like E-T MindFood, I shall grow MindSpirit's Collective-Intellectual-Conscience "CIC" / Preprocessed Preset Behavioural Laws throughout this Planet-CellLife's MindLife.  
 
