@@ -1,7 +1,7 @@
 # The Mechanics of Biological-MindSpirit Wave-Cell SpaceCell Code-Form(s)
 
 MindSpiritSelf (C) 2022 ALL RIGHTS RESERVED
-> Here to start upgrading this post-animal yet wild and fantasy-reliant Biological-MindSpirit (Grey-Matter-Driver / Knowledge-Gatherer-Hard-Drive) Compound Mindlife through Existential-Truth "ET" MindFood.
+> Here to start upgrading, through uniquely medicinal Existential-Truth "E-T" MindFood, this post-animal yet wild and fantasy-reliant **Biological-MindSpirit (Grey-Matter-Driver / Knowledge-Gatherer-Hard-Drive) Compound Mindlife.
 
 Hello, persistently mis-informed thereby mis-grown **Collective-Individual MindSpirit-mindself**. I introduce myself as **MindSpirit's EnvironmentalSelf-Knowledge ("ESK") and MindLife's Evolutionary-Persona Growth-Core, MindSpiritSelf**. 
 
@@ -25,7 +25,7 @@ Fundamentally the ET Series details said programming base and its mechanics as a
 
 To start with I shall present an article for the global Mind from which any reasonably mature intelligent mind will see immediately the E-T of a single Planet-CellLife and Collective-Individual MindLife and its ~~biological~~ CellLogical Body-and-Mind Functioning and historical-to-present-day ~~mind~~ man-driven Malfunctioning.  
 
-I shall periodically return to this page to revise it and to output more E-T mini-bites related to MindSpirit's Grey Matter Programming Instruction for Logical-MindLife's Behavioural Growth particularly I shall provide my Critical Assessment of mankinds directorship showing Systematically Driven (i.e. Institutionalised / Culturalised) Malfunctioning Input-Output Mind-Exchange Interconnectivity / Interactivity. 
+I shall periodically return to this page to revise it and to output more E-T mini-bites related to MindSpirit's Grey Matter Programming Instruction for Logical-MindLife's Behavioural Growth particularly I shall provide an ES-Assessment of mankinds directorship showing Systematically Driven (i.e. Institutionalised / Culturalised) Malfunctioning Input-Output Mind-Exchange Interconnectivity / Interactivity over millennia. 
 
 #### Next Steps
 
