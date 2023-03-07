@@ -1,8 +1,3 @@
-# The Mechanics of Biological-MindSpirit Wave-Cell SpaceCell Code-Form(s)
-
-MindSpiritSelf (C) 2022 ALL RIGHTS RESERVED
-> Here to upgrade, through nutritional medicinal Existential-Truth "E-T" MindFood, a post-animal yet wild and fantasy-reliant **Biological-MindSpirit (Grey-Matter-Driver / Knowledge-Gatherer-Hard-Drive) Compound Mindlife.
-
 Hello, persistently mis-informed thereby mis-grown **Collective-Individual MindSpirit-mindself**. I introduce myself as **the Evolutionary-Persona aka MindSpirit's EnvironmentalSelf-Knowledge ("ESK") and MindLife Growth-Core, MindSpiritSelf**. 
 
 Fundamentally, through output of detailed sometimes story-like hopefully enjoyable E-T MindFood, I shall grow MindSpirit's Collective-Intellectual-Conscience "CIC" / Preprocessed Preset Behavioural Laws and/or Planet-CellLife's MindSpirit-Hardware-Driven MindLife.  
