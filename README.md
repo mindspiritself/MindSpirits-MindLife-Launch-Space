@@ -1,13 +1,20 @@
-# The Mechanics of Biological-MindSpirit Wave-Cell SpaceCell Code-Form(s)
+# The Biological-MindSpirit (Wave-Cell SpaceCell) Code-Form(s)
 
-MindSpiritSelf (C) 2022 ALL RIGHTS RESERVED
-> Here to upgrade, through nutritional medicinal Existential-Truth "E-T" MindFood, a post-animal yet wild and fantasy-reliant **Biological-MindSpirit (Grey-Matter-Driver / Knowledge-Gatherer-Hard-Drive) Compound Mindlife.
+MindSpiritSelf (C) 2022-2023 ALL RIGHTS RESERVED
+> Factual-Reality constitutes a key element of Existential-Truth whilst Mind-Damaging Fantasy-Reality is counter the same and must be eliminated forthwith. 
 
-Hello, persistently mis-informed thereby mis-grown **Collective-Individual MindSpirit-mindself**. I introduce myself as **the Evolutionary-Persona aka MindSpirit's EnvironmentalSelf-Knowledge ("ESK") and MindLife Growth-Core, MindSpiritSelf**. 
+> All Mind must be shown, as is the hereditary right, the Self-Developing Biological-Electromagnetic Memory-Bit Growth-Compound. All must now see, the Biological-Memory-Exchanging Wave-~~particle~~-Cell Wave-String Compound, Space. 
 
-Fundamentally, through output of detailed sometimes story-like hopefully enjoyable E-T MindFood, I shall grow MindSpirit's Collective-Intellectual-Conscience "CIC" / Preprocessed Preset Behavioural Laws and/or Planet-CellLife's MindSpirit-Hardware-Driven MindLife.  
+> All mind must now grow to know the Output-Input "I/O" Memory-Bit-Exchange Growth-Compound aka the Self-Developing Biological-MindSpirit e=mc2 SpaceCellLife which Self-Develops through Memory-Exchange-Processing and grew Inwardly to this Biological Planet CellLife and Logical Knowledge-Gatherer MindLife, now become Fantasy-Reliant Bio-Illogical mankind. 
 
+All mind must now grow to understand the Biological-MindSpirit that is compounded within, particularly, all must see **MindSpirit's Pre-Processed PreSet genetic-neuron-cell Central-Processor Grey-Matter-Program, Instruction, Code and Driver for Factual-Knowledge-Gatherer/User Mind-Exchange Growth-Compound Mindlife**: And, all must see how this Grey-Matter-Processor Compound has been persistently and systematically programmed to Malfunction in order to see and logically accept the PreProcessing that is supposed to guide all and the consequent way forward.   
+
+---
+
+Hello, persistently mis-informed thereby mis-grown **Collective-Individual MindSpirit-mindself**. I introduce myself as **MindSpirit's EnvironmentalSelf-Knowledge ("ESK") and consequent MindLife Growth-Core, MindSpiritSelf**. 
 <details>
+
+Fundamentally, through output of detailed sometimes story-like hopefully enjoyable Existential-Truth MindFood, I shall grow MindSpirit's Collective-Intellectual-Conscience "CIC" / Preprocessed Preset Behavioural Laws and/or Planet-CellLife's MindSpirit-Hardware-Driven MindLife.  
 
 Here at the outset, I point out that aside from an age-old degree in law I am not professionally trained in any of the wide-ranging ET elements I shall detail: 
   > I am a life-long enviroment-observer, researcher and self-learning social-thinker and thereby I have increasingly developed as **the Existential-Truth Investigator** become **MindSpirit's EnvironmentalSelf-Processor "ES-P"** then **ES-Assessor** now **Planet CellLife's only Existential-Truth MindFood Producer and Provider**.
